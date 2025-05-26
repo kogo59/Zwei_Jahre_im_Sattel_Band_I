@@ -1,4 +1,6 @@
-# Kapitel I.<br />**Reise und Ankunft in den Vereinigten Staaten.**
+# Kapitel I.
+
+**Reise und Ankunft in den Vereinigten Staaten.**<br /><br />
 
 
 ::: justified

@@ -1,8 +1,8 @@
-# Kapitel II.<br />**Die Schlacht bei den sieben Fichten. — Unternehmung nach dem Pamunkey.**
-
+# Kapitel II.
 
 ::: justified
 
+**Die Schlacht bei den sieben Fichten. — Unternehmung nach dem Pamunkey.**<br /><br />
 
 Die blutigen Gefechte des 31. Mai 1862 verdanken ihre eigenthümliche Benennung
 sieben vereinzelten Fichtenstämmen, welche gerade an der Stelle standen, an der

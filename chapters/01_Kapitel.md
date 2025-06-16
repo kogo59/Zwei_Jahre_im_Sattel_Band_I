@@ -45,8 +45,7 @@ als kleinen Punkt am Horizonte verschwinden zu sehen.
 
 Ich war durch diese unwillkommene Durchsuchung erheblich geschädigt worden, sie
 kostete mich manch werthvolles Schriftstück, Aufzeichnungen und
-Empfehlungsbriefe, welche ich aus Furcht, sie könnten von unseren ungebetenen
-Gästen gelesen werden, bei ihrer Annäherung verbrannt hatte.
+Empfehlungsbriefe, welche ich aus Furcht, sie könnten von unseren ungebetenen Gästen gelesen werden, bei ihrer Annäherung verbrannt hatte.
 
 Wenige Stunden später erschien die Insel Abaco voll in Sicht, und bei einem
 herrlichen Sonnenuntergange fuhren wir an den kleinen mit reichem tropischen

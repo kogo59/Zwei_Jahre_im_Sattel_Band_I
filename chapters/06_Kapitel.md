@@ -45,7 +45,7 @@ Stadt zu ziehen. Der General selber mußte sich jedoch hinein und in das
 Hauptquartier des Generals Lee begeben, um seine letzten Weisungen in Empfang zu
 nehmen, bei welchem Ritte er von seinem Stabe begleitet war.
 
-Leesburg, der Grafschaftssitz von Londoun, ein Dorf oder Städtchen von etwa 4000
+Leesburg, der Grafschaftssitz von Loudoun, ein Dorf oder Städtchen von etwa 4000
 Einwohnern, vier Meilen vom Potomac-Flusse entfernt, befand sich, infolge seiner
 Lage dicht an der Grenze, bald in den Händen der Yankees, bald in denen der
 Konföderirten und wechselte während des Krieges mehrere Male seinen Herrn.

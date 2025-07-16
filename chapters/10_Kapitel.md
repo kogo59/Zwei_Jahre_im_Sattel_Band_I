@@ -3,7 +3,7 @@
 ::: justified
 
 **Wechsel der Operationsbasis. — Uebergang über den Shenandoah. — Gefechte in
-Loudoun und Fauquiers. Gefechke bei Pothonse und Aldie. — Empfang in
+Loudoun und Fauquiers. — Gefechte bei Pothonse und Aldie. — Empfang in
 Middleburg.**<br /><br />
 
 
